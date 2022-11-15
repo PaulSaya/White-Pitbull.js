@@ -5,4 +5,4 @@ Is the white Pitbull a rare color, or are they just as common as the rest? Some 
 
 The American Pitbull Terrier actually has a wide variety of coat colors to choose from. From silver, fawn, brindle or reverse brindle, red, or blue, he pretty much has a choice of the whole doggy rainbow spectrum. And one of the most beautiful and popular colors of them all is brilliant white.
 
-![Uploading image.png…]()
+![image](https://user-images.githubusercontent.com/87011258/201909928-468ba6c8-d64a-4a79-af08-08e24e33fbbc.png)
